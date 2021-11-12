@@ -3,7 +3,7 @@
 
 而很多从事互联网的朋友应该或多或少都会接触到这些梯子软件工具。我也是从朋友那里找到这款比较好用的梯子软件，所以，在这里推荐给大家使用。
 
-传送门：[点击链接](https://oplktunm.com/auth/register?code=GIPS)
+传送门：[点击链接](https://yunjuting.com/auth/register?code=GIPS)
 
 ## 什么是好用的梯子软件 ##
 所谓的[梯子软件](https://github.com/Tonyforfun94/best-vpn)，就是一个帮助我们上[外网的工具](https://github.com/Tonyforfun94/P-zhan)。我们可以使用这个工具软件注册登录国外的一些软件，如脸书，推特等等。
